@@ -1,3 +1,3 @@
-## SLAYERSTROLOGY
+## The Initiator
 
 in progress....
