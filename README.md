@@ -1,3 +1,0 @@
-## SLAYERSTROLOGY
-
-in progress....
